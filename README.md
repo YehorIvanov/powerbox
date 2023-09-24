@@ -5,6 +5,8 @@ https://www.youtube.com/watch?v=MCbSYTChoHg&ab_channel=%D0%A1%D0%B8%D0%BD%D0%B8%
 
 https://www.youtube.com/watch?v=58f0kuamHTY&ab_channel=MaxSpace
 
+https://www.youtube.com/watch?v=C-LdNdKzV_g&ab_channel=MaxSpace
+
  список компонентов
  LG Chem 76Ah
 https://www.olx.ua/d/uk/obyavlenie/li-ion-paket-akkumulyator-lg-chem-76-ah-3-2v-4-2v-v-nayavnost-IDSH2mi.html
